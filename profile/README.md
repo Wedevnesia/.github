@@ -1,4 +1,4 @@
-![20230920_1949091](https://github.com/Wedevnesia/demo-repository/assets/125029422/37b5aa19-8690-45ae-86dc-3f02816052cf)
+![20230920_1949091](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhB0c1GZYH56z9CWtBlXivrL1TouUQlzRK_JR_IU8X7p4oxwFwe0Z8xI_eb46oi4ouznxim9NeWUTsmKJeMQJzzxLrKlPUm6YLhtRgmZ_PkhhYNVoaujwWDtMUz-nDuE3KwxRttbiz9zyk0759YWihfx-6WBl0vH4tG8IDZYXmYN2n-2Jwtio0GkxGum-mG/s500/20230920_1951153.gif)
 
 [Welcome to the Indonesian Programmer Community!](https://wedevnesia.blogspot.com)
 
